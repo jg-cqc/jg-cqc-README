@@ -8,4 +8,4 @@ Please see:
 Or...
 * [https://jgilmore.co.uk](https://jgilmore.co.uk)
 * [https://www.linkedin.com/in/jongilm](https://www.linkedin.com/in/jongilm)
-* 
+ 
